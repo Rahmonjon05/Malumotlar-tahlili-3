@@ -1,0 +1,1 @@
+# Malumotlar-tahlili-3
